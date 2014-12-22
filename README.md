@@ -36,7 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-TVVO BOOKES OF EPIGRAMMES, AND EPITAPHS. Dedicated to two top-branches Of GENTRY. Sir Charles Shirl
 #####Body#####
 
 1. The First Booke of Epigrammes.
